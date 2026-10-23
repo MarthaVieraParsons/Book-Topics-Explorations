@@ -1,4 +1,4 @@
-# The Smart Buyer's Guide to Southern Arizona
+# Your Next Chapter: The Smart Buyer's Guide to Southern Arizona
 ### Everything You Need to Buy Your Next Home with Confidence
 
 By Martha Viera Parsons

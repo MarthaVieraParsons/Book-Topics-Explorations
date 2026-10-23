@@ -1,4 +1,4 @@
-# The Smart Move to Southern Arizona
+# Your Next Chapter: The Smart Move to Southern Arizona
 ### Your Complete Guide to Buying, Selling, Downsizing and Loving Life in Southern Arizona
 
 By Martha Viera Parsons
